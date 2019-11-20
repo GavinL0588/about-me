@@ -11,4 +11,4 @@ I don't have a best friend but only very close ones
 I don't like sports unless it is E-sports
 My favorite teams are NYXL from Overwatch and Cloud 9 from CS:GO
 Most of the time afterschool I just play games and watch anime since I love anime
-Test
+Test2
