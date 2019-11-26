@@ -12,4 +12,4 @@ I don't like sports unless it is E-sports.
 My favorite teams are NYXL from Overwatch and Cloud 9 from CS:GO.
 Most of the time afterschool I just play games and watch anime since I love anime.
 In school you will see me with my friends and I would be grinding in Azur Lane trying to get Ayanami (Best and cutest Azur Lane Character).
-Test2
+Ayanami is my anime waifu at the moment (maybe a long time)
